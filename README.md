@@ -1,0 +1,5 @@
+**Já passaram de 300 mil mortes por Covid 19 em todo o mundo, fato que assombra toda a humanidade.**
+
+Desde seu aparecimento, em meados de dezembro de 2019 na China, o Corona virus, * *causador da Covid 19* *, é responsável por cerca de [312 mil](https://www.em.com.br/app/noticia/internacional/2020/05/17/interna_internacional,1148082/chega-a-quase-312-mil-o-numero-de-mortos-pelo-coronavirus-no-mundo.shtml)
+vitimas fatais em todo planeta. 
+Casos semelhantes ao que estamos vivenciando nesse momento já ocorrem desde tempos passados. Podemos citar a [peste negra](https://pt.wikipedia.org/wiki/Peste_Negra) ocorrida na idade média e que  * *matou milhões de pessoas* * e também a [gripe espanhola](https://pt.wikipedia.org/wiki/Gripe_espanhola), mais recente, que também * *matou aos milhares* *. Contudo, com as devidas medidas de isolamento social que, infelizmente, consistem na única alternativa para conter o vírus enquanto não há vacina, sendo respeitadas, acreditamos que a humanidade conseguirá prevalecer mais uma vez.
